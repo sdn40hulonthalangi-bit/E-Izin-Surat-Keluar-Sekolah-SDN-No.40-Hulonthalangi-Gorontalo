@@ -1,0 +1,1 @@
+# E-Izin-Surat-Keluar-Sekolah-SDN-No.40-Hulonthalangi-Gorontalo
